@@ -36,73 +36,98 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The wise vieillard, or old man. Translated out of French into English by an obscure Englishman, a fr
+
+1. TO
+THE RIGHT
+VVORSHIPFVLL,
+VVORTHIE, REVEREND,
+AND LEARNED DIVINE
+Mr IOSEPH HALL, Doctor of
+Diuinitie and Deane of Worceſter,
+the Author doth Dedicate
+this Tranſlation as
+the firſt fruit and eſſay
+of his FRENCH
+Studies.
+
+1. ¶To the Reader.
+
+1. THE CONTENTS OF THE
+twentie Chapters of this Booke.
+Ay mee! I lacke but life to make my will.If thou hadst life it would be vnmade ſtill.Il y a eſperanc
 #####Body#####
 
-1. CHAP. 1. Of long life, and the deſire men haue to liue long in
+1. THE WISE
+VIEILLARD
+OR
+OLD MAN.
+
+    _ CHAP. 1. Of long life, and the deſire men haue to liue long in
 the world.
 
-1. CHAP. II. Of ſuch perſons as haue liued long, namely the Patriarches
+    _ CHAP. II. Of ſuch perſons as haue liued long, namely the Patriarches
 before the flood.
 
-1. CHAP. III. Of the tree of Life, and of the tree of Knowledge of good
+    _ CHAP. III. Of the tree of Life, and of the tree of Knowledge of good
 and euill.
 
-1. CHAP. IIII. What old age is, and how many ſpecies and kindes of old
+    _ CHAP. IIII. What old age is, and how many ſpecies and kindes of old
 age there be.
 
-1. CHAP. V. The ſpring-head of old age, and the cauſe or occaſions
+    _ CHAP. V. The ſpring-head of old age, and the cauſe or occaſions
 of it.
 
-1. CHAP. VI. Of the Climactericall yeares.
+    _ CHAP. VI. Of the Climactericall yeares.
 
-1. CHAP. VII. The complaintes of the miſeries of old age aduiſedly
+    _ CHAP. VII. The complaintes of the miſeries of old age aduiſedly
 diſcuſſed.
 
-1. CHAP. VIII. Foure cauſes propounded by Cicero of the miſeries of old age,
+    _ CHAP. VIII. Foure cauſes propounded by Cicero of the miſeries of old age,
 reduced to two; to wit, the miſeries of the body, and
 of the minde.
 
-1. CHAP. IX. A more ſpeciall Catalogue, or numbring vp of ſome miſeries
+    _ CHAP. IX. A more ſpeciall Catalogue, or numbring vp of ſome miſeries
 in old men, in regard of their bodies.
 
-1. CHAP. X. The miſeries of old men in regard of their mindes.
+    _ CHAP. X. The miſeries of old men in regard of their mindes.
 
-1. CHAP. XI. Of the cauſes that old age is burthenſome, and tedious to
+    _ CHAP. XI. Of the cauſes that old age is burthenſome, and tedious to
 many old man.
 
-1. CHAP. XII. Of the benefit or good of old age.
+    _ CHAP. XII. Of the benefit or good of old age.
 
-1. CHAP. XIII. Of the profit, which wiſe old men may reape from the Doctrine
+    _ CHAP. XIII. Of the profit, which wiſe old men may reape from the Doctrine
 conteined in the writings of Philoſophers, and Heathen
 Authors.
 
-1. CHAP. XIIII. Aſſured conſolations againſt all the infirmities of bodie
+    _ CHAP. XIIII. Aſſured conſolations againſt all the infirmities of bodie
 and minde.
 
-1. CHAP. XV. An aduiſe to wiſe old men, conteining the ſummarie
+    _ CHAP. XV. An aduiſe to wiſe old men, conteining the ſummarie
 and ſubſtance of their dutie vntill their laſt gaſpe.
 
-1. CHAP. XVI. Worthy Meditations for all perſons, eſpecially the wiſe
+    _ CHAP. XVI. Worthy Meditations for all perſons, eſpecially the wiſe
 Vieillard, of what quality and condition ſoeuer he be.
 
-1. CHAP. XVII. Conſolations againſt death, and how it ought to be
+    _ CHAP. XVII. Conſolations againſt death, and how it ought to be
 feared, or not feared.
 
-1. CHAP. XVIII. The ſequele of the poynts propounded in the former
+    _ CHAP. XVIII. The ſequele of the poynts propounded in the former
 Section, concerning the reſolutions and conſolations
 againſt Death.
 
-1. CHAP. XIX. Of the reſurrection of the bodies, and of the immortalitie
+    _ CHAP. XIX. Of the reſurrection of the bodies, and of the immortalitie
 of humane ſoules.
 
-1. CHAP. XX. The concluſion of the Worke, with a ſerious
+    _ CHAP. XX. The concluſion of the Worke, with a ſerious
 Exhortation to Old and Young:
 Alſo two prayers for
 wiſe old men.
 
 #####Back#####
-The wise vieillard, or old man. Translated out of French into English by an obscure Englishman, a fr
+
+1. Errata.
+
 **Types of content**
 
   * There are 80 **verse** lines!
